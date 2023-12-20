@@ -1,4 +1,4 @@
-![Resume Picture](pexels-dinielle-de-veyra-4195342.jpg)
+![Resume Picture](pexels-dinielle-de-veyra-4195342_100x150.webp)
 # Mohammed M. Chowdhury
 
 <hr>
